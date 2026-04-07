@@ -37,4 +37,4 @@ Hesabınıza ait tüm oyun verilerini uygulama içinden silebilirsiniz. Google h
 
 ## 7. İletişim
 
-Gizlilik politikamıza ilişkin sorularınız için: [creaidea.app@gmail.com](mailto:creaidea.app@gmail.com)
+Gizlilik politikamıza ilişkin sorularınız için: [sedatxsarigul@gmail.com](mailto:sedatxsarigul@gmail.com)
